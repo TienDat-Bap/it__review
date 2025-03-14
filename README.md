@@ -1,1 +1,0 @@
-Đây là kiến sẽ được ôn lại từ đầu học theo chương trình ai bảo.
